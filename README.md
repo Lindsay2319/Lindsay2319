@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me at my gmail
+- 📫 How to reach me...
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: no fun fact
 
